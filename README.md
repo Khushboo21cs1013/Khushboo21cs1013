@@ -1,5 +1,6 @@
 ![](https://raw.githubusercontent.com/halfrost/halfrost/master/icons/header_.png)
 ![images](https://github.com/ykdojo/kaguya/assets/97533656/827d7f73-b9ec-4cd4-88e4-53243e8d74c1)
+![WhatsApp Image 2023-06-22 at 17 34 58](https://github.com/ykdojo/kaguya/assets/97533656/a40a93d7-d409-482e-9616-427d9c303513)
 
 
 
